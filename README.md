@@ -3,7 +3,7 @@ ompele kljgvschbi
 
  vjugv/
   kin ugb
-  v knikvuyehb
+  v 
    v jbtcrtyjkulo
    mn mv pkkjvbhkjl
     m   ojuiygkdjhudtjyfkugyilulkv kljbgkifd8ujp
