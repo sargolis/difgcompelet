@@ -5,6 +5,6 @@ ompele kljgvschbi
   kin ugb
   v 
    v jbtcrtyjko
-   mn mv pkkjvbhk
+   mn mv pkkjvb
     oiygkdjhudtjyfkugyilulljbgku
      vkkioukf
