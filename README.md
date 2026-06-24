@@ -7,7 +7,6 @@ ompele kljgvschbi
 
    v jbtcrtyjkuloijnV
    mn mv pkkjvbhkjljd
-    ;dv,kugyhc
     m   ojuiygkdjhudtjyfkugyilulkv kljbgkifd8ujpvd
 
      vkkioukfrc
