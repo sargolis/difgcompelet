@@ -2,7 +2,7 @@
 ompele kljgvschbi
 
  v
-  kin ugb
+  kin u
    v 
    mn mv pkk
     oiygkdjhudtjfkugyilullj
