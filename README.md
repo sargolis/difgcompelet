@@ -6,4 +6,4 @@ ompele kljgvschbi
    v 
    mn mv pkk
     oiygkdjhudtjfkugyilullj
-     vkkio
+     vkk
