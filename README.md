@@ -4,7 +4,7 @@ ompele kljgvschbi
  vjug
   kin ugb
   
-   v jbtcrtyj
+   v jbtcrt
    mn mv pkkj
     oiygkdjhudtjfkugyilulljbg
      vkkiou
