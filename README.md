@@ -1,7 +1,7 @@
 # 
 ompele kljgvschbi
 
- vjug
+ vju
   kin ugb
    v jbtc
    mn mv pkk
