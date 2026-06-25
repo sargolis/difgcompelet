@@ -1,7 +1,7 @@
 # 
 ompele kljgvschbi
 
- vjugv/
+ vjug
   kin ugb
   
    v jbtcrtyj
