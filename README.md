@@ -1,4 +1,3 @@
 
 ompele kljgvsch
    mn
-    o
