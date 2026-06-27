@@ -1,2 +1,2 @@
 
-ompele klj
+ompele k
