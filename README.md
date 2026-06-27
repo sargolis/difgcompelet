@@ -1,7 +1,6 @@
 # 
 ompele kljgvschb
  v
-  kin 
-
+  ki
    mn mv p
     oiygkdjhu
