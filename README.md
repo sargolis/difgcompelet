@@ -1,2 +1,2 @@
 
-ompele kljgvsc
+ompele kljgv
