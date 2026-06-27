@@ -2,5 +2,5 @@
 ompele kljgvschb
  v
   ki
-   mn mv
+   mn
     oiygkdj
