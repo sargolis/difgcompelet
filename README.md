@@ -4,5 +4,5 @@ ompele kljgvschbi
  v
   kin 
 
-   mn mv pkk
+   mn mv p
     oiygkdjhudt
