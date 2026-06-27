@@ -1,3 +1,2 @@
 
-ompele kljgvsch
-   mn
+ompele kljgvsc
