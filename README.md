@@ -1,6 +1,5 @@
 # 
-ompele kljgvschbi
-
+ompele kljgvschb
  v
   kin 
 
